@@ -1,16 +1,15 @@
-## Hi there 👋
+# Hello :3
 
-<!--
-**Emberpaws-ShadowClan4750/Emberpaws-ShadowClan4750** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ It is I, that one person you'll never find online even though I have an account!
 
-Here are some ideas to get you started:
+ I've got projects on Wattpad, if you search for Feathertail's Loyalty, you'll probably find me and my current project!
+ This is just for stuff.
+ Please do not contact me at any moment unless urgent and you are in my area AND YOU KNOW IT.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ I'm a young person, but I have enough knowledge to know when bad things are happening to me, and what to do. Do not attempt this, not on my Wattpad account.
+ Do support young creators for they are probably seeking validation or attention, and they probably deserve it.
+
+ For any other creators you might want to support:
+ @Alex-Hamish
+ @122495-gif
+ @Aexxxxxx
