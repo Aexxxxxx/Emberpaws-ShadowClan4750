@@ -10,6 +10,6 @@
  Do support young creators for they are probably seeking validation or attention, and they probably deserve it.
 
  For any other creators you might want to support:
- @Alex-Hamish
- @122495-gif
- @Aexxxxxx
+ * @Alex-Hamish
+ * @122495-gif
+ * @Aexxxxxx
